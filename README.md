@@ -5,7 +5,7 @@
 * Ice
 * 2 or more shots of expresso or other strong coffee
 * Kahlúa, Tia Maria or Baileys.  First is prefered.  I will not judge on the last two
-* Martin Glases
+* Martin Glasses
 * Cocktail Shacker
 * Optional some coffee beans
 
@@ -16,9 +16,9 @@
 3. Pour two double vodka shots
 4. Add a double coffee
 5. Also add a double Kahlúa, Tia Maria or Baileys
-6. Add lid, hold it and shake hard for 30 secs
+6. Add lid, hold it and shake hard for 30 secs (check lid... otherwise sticky mess may ensue)
 7. Pour immediately, add optional Coffeee beans
-8. Serve with urgency with a smile
+8. Serve with urgency, with a smile
 
 # Warning
 Do not have more than two.  They are quite strong!
