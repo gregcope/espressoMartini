@@ -11,6 +11,7 @@
 
 # Process for two cocktails
 
+0. Make and chill expresso coffee well beforehand (it will take a while to cool!)
 1. Chill all ingredients beforehand
 2. Add two or three ice cubes in shacker
 3. Pour two double vodka shots
