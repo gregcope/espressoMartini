@@ -3,7 +3,7 @@
 # Ingredients
 * Vodka
 * Ice
-* 2 or more shots of expresso or other strong coffee
+* 2 or more shots of espresso or other strong coffee
 * Kahlúa, Tia Maria or Baileys.  First is prefered.  I will not judge on the last two
 * Martin Glasses
 * Cocktail Shacker
@@ -11,7 +11,7 @@
 
 # Process for two cocktails
 
-0. Make and chill expresso coffee well beforehand (it will take a while to cool!)
+0. Make and chill espresso coffee well beforehand (it will take a while to cool!)
 1. Chill all ingredients beforehand
 2. Add two or three ice cubes in shacker
 3. Pour two double vodka shots
